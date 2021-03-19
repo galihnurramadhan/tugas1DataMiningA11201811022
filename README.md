@@ -1,0 +1,1 @@
+# tugas1DataMiningA11201811022
